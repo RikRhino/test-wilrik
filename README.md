@@ -7,6 +7,8 @@ Deze regel behoort tot dezelfde alinea.
 
 - opsomming
 - opsomming 2
+- welkom in wonderland
+- hier zijn ook composterende bloempotten
 
 ## Subtitel 2
 
