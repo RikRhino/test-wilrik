@@ -9,6 +9,7 @@ Deze regel behoort tot dezelfde alinea.
 - opsomming 2
 - welkom in wonderland
 - hier zijn ook composterende bloempotten
+- ha de domme opsomming van Willem !!!
 
 ## Subtitel 2
 
